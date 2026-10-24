@@ -19,6 +19,5 @@ Here are some ideas to get you started:
 
 - 📫 How to reach me: raisavalescha@gmail.com
 - 😄 Pronouns: she/her/hers
-- ⚡ Fun fact: ...
--->
+--
 **
