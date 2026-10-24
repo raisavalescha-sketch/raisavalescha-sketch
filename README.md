@@ -1,5 +1,5 @@
-<h1 align="center">Hi 👋, I'm raisa valescha</h1>
-<h3 align="center">i just start coding,and want 2 improve my skill</h3>
+<h1 align="center">Hi 👋, im kyuppiee </h1>
+<h3 align="center">i just start coding,and want to improve my skill</h3>
 
 - 📫 How to reach me **raisavalescha@gmail.com**
 
